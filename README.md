@@ -2,7 +2,7 @@
 ![Logo](https://media.discordapp.net/attachments/1056294642305474691/1176994564263919647/New_Project_1.png?ex=6570e49b&is=655e6f9b&hm=360759b0403bd21893d04647b28a1714db96abec2ea3f5e83acc037ffa911abc&=&format=webp)
 ## Download
 
-[Mega.nz](https://shorturl.at/fsIWY)
+[Mega.nz](https://shorturl.at/puJ15)
 
 ## License
 
